@@ -1,8 +1,4 @@
-GROUP 19 MEMBERS:
 
-Belyse NIYONSENGA
-
- Christian ISHIMWE
                           Event Registration Form
 A Report Introduction
 
